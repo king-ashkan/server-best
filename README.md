@@ -12,4 +12,6 @@ rage server: https://mega.nz/file/FSoiCCZJ#Qagl9uia46nGVNa32-DCMxrqx8QmqM81t-Hyd
 
 server eclips: https://mega.nz/file/hC4mVQxY#1K45fdPOlPjo0XAsAXOcUw-Jgji-F-K3ePLJ5YnMfd8
 
+server kingrp: https://mega.nz/file/NKwT2RoT#oTPsEuJGUT4i8c6lb3OefCUBBFrARz2o3UDVtDDeapw
+
 wait new server backupe............
