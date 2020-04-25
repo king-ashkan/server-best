@@ -14,4 +14,7 @@ server eclips: https://mega.nz/file/hC4mVQxY#1K45fdPOlPjo0XAsAXOcUw-Jgji-F-K3ePL
 
 server kingrp: https://mega.nz/file/NKwT2RoT#oTPsEuJGUT4i8c6lb3OefCUBBFrARz2o3UDVtDDeapw
 
+wolf city new version: https://mega.nz/file/9D4jybCQ#zf7tv-7YbVtEDInm5y7ibXxynMofj_Sh7RArD4uOMog 
+and deta: https://mega.nz/file/Af5n1RoJ#1vbKrpc8uehC9vJWPvf9RQuknje4A5M-Y2jB_SsGxb8
+
 wait new server backupe............
