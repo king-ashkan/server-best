@@ -17,5 +17,7 @@ and deta: https://mega.nz/file/Af5n1RoJ#1vbKrpc8uehC9vJWPvf9RQuknje4A5M-Y2jB_SsG
 
 wolf city old version: https://mega.nz/file/pb4xVRhb#FGZt5GLahDAVfs2lIjZ8_JtA6B_QKy0274GZDSgqhjg
 
+asgard server:https://mega.nz/file/Bv53ESyL#7tcwWCzv4MO5yq1lWoEjQWGj08XI7Vk0G2oqAkrJfYs
+
 wait new server backupe............
 
